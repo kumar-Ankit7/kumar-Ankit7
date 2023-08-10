@@ -1,5 +1,5 @@
 ## Hi there 👋
-#### My Name us ANKIT KUMAR 
+#### My Name is ANKIT KUMAR 
 
 
 
